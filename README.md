@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BritishSpuds
+- 👀 I’m interested in gaming
+- 🌱 I’m currently learning python in shcool and java in my own time
+- 💞️ I’m looking to collaborate on nothing atm
+- 📫 How to reach me, discord - 100% British Spuds#5187
